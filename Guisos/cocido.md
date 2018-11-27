@@ -37,3 +37,5 @@ madrileño.
 Consejo:
 Para que el hueso de jamón no dé demasiado sabor al cocido, lo mejor será lavarlo bien 
 antes de agregarlo a la olla.
+
+se añade  tabasco y guindillas.
